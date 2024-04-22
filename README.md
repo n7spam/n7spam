@@ -1,11 +1,9 @@
-hy, my name is Nicolas Gabriel
+deftounis
+
+
+
+
 Instagram : @Nicolasx.martinsz
-WhatsApp : +55 19
-
-
-
-
-
 
 
 
